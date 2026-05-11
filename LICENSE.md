@@ -1,4 +1,4 @@
-#  
+#  adopt me Scripts instant offers the most advanced adopt me Script, with no clip and auto-farm. Perfect for dominating any match.
 
 
 
